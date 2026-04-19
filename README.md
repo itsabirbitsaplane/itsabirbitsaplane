@@ -1,6 +1,6 @@
 o shit it worked heres my art while i figure out the rest of my bio
 
-![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=red&label=views)
+![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=red&label=cool+guys+/j)
 
 ![alt text](https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/Screenshot%20(760).png?raw=true)
 
