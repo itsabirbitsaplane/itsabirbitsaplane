@@ -1,6 +1,6 @@
 <div align=center />
   
-  ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=red&label=green)<br/>
+  ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=green&label=helo)<br/>
   o shit it worked heres my art while i figure out the rest of my bio<br/>
 im usually offtab on pt feel free to c+h  
 </p>
