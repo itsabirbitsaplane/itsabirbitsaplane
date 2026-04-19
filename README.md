@@ -1,4 +1,5 @@
 o shit it worked heres my art while i figure out the rest of my bio
+c+h plsplsplspls
 
 ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=red&label=cool+guys+/j)
 
