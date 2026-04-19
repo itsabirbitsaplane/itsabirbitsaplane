@@ -1,6 +1,10 @@
-o shit it worked heres my art while i figure out the rest of my bio 
+> ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=red&label=hi)
 
-![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=red&label=cool+guys+/j)	
+<p align="center">
+  o shit it worked heres my art while i figure out the rest of my bio<br/>
+im usually offtab on pt feel free to c+h  
+</p>
+
 
 ![alt text](https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/Screenshot%20(760).png?raw=true)
 
