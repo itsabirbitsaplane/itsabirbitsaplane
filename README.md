@@ -1,8 +1,10 @@
 <div align=center />
   
   ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=green&label=helo)<br/>
-  太阳下山，明早依旧爬上来 <br/>
+  _太阳下山，明早依旧爬上来......_ <br/>
   -☁︎ ✈︎ ☁︎- <br/>
+  
+  readme still wip :| <br/>
   im usually offtab on pt feel free to c+h 
 
   [strawpage](https://itsabirbitsaplane.straw.page) <- WIP ┊ [art blog](https://www.tumblr.com/itsabirbitsaplane) ┊ [magma](https://magma.com/artist/itsabirbitsaplane/gallery)
