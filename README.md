@@ -7,7 +7,7 @@
   readme still wip :| <br/>
   im usually offtab on pt feel free to c+h 
 
-  [strawpage](https://itsabirbitsaplane.straw.page) <- WIP ┊ [art blog](https://www.tumblr.com/itsabirbitsaplane) ┊ [magma](https://magma.com/artist/itsabirbitsaplane/gallery)
+  [strawpage](https://itsabirbitsaplane.straw.page) <- WIP ┊ [gun](guns.lol/itsabirb_plane) <- also wip im cryin
 </p>
 
 
