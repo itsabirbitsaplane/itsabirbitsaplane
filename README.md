@@ -1,7 +1,7 @@
 <div align=center />
   
   ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=green&label=helo)<br/>
-  _太阳下山，明早依旧爬上来......_ <br/>
+  _太阳下山 明早依旧爬上来_ <br/>
   -☁︎ ✈︎ ☁︎- <br/>
   
   readme still wip :| <br/>
