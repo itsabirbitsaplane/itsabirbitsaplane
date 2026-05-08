@@ -6,11 +6,13 @@
   
   readme still wip :| <br/>
   im usually offtab on pt feel free to c+h 
+  dont copy, but you can ask for inspo 
 
   [strawpage](https://itsabirbitsaplane.straw.page) <- WIP ┊ [guns](https://guns.lol/itsabirb_plane) <- also wip im cryin
-</p>
+
 
 
 ![alt text](https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/Screenshot%20(760).png?raw=true)
-
+  (art by me)
+</p>
 
