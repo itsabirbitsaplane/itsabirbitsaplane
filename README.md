@@ -4,11 +4,10 @@
   _太阳下山 明早依旧爬上来_ <br/>
   -☁︎ ✈︎ ☁︎- <br/>
   
-  readme still wip :| <br/>
   im usually offtab on pt feel free to c+h <br/>
   dont copy, but you can ask for inspo 
 
-  [strawpage](https://itsabirbitsaplane.straw.page) <- WIP ┊ [guns](https://guns.lol/itsabirb_plane)
+  [strawpage](https://itsabirbitsaplane.straw.page) ┊ [guns](https://guns.lol/itsabirb_plane)
 
 
 
