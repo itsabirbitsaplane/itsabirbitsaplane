@@ -8,7 +8,7 @@
   im usually offtab on pt feel free to c+h <br/>
   dont copy, but you can ask for inspo 
 
-  [strawpage](https://itsabirbitsaplane.straw.page) <- WIP ┊ [guns](https://guns.lol/itsabirb_plane) <- also wip im cryin
+  [strawpage](https://itsabirbitsaplane.straw.page) <- WIP ┊ [guns](https://guns.lol/itsabirb_plane)
 
 
 
