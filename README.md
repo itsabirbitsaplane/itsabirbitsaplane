@@ -7,7 +7,7 @@
   im usually offtab on pt feel free to c+h <br/>
   dont copy, but you can ask for inspo 
 
-  [strawpage](https://itsabirbitsaplane.straw.page) ┊ [guns](https://guns.lol/itsabirb_plane)
+  [tumblr art blog](https://tumblr.com/itsabirbitsaplane) ┊ [magma](https://magma.com/artist/itsabirbitsaplane/gallery)
 
 
 
