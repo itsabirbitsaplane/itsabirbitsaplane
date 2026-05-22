@@ -2,7 +2,7 @@
   
   ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=green&label=ni_haowdy)<br/>
   _太阳下山 明早依旧爬上来_ <br/>
-  -☁︎ ✈︎ ☁︎- <br/>
+  ✈︎ <br/>
   
   im usually offtab on pt feel free to c+h <br/>
   dont copy, but you can ask for inspo 
