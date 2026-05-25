@@ -1,6 +1,6 @@
 <div align=center />
   
-  ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=orange&label=passengers)<br/>
+  ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=orange&label=hello)<br/>
 
   ✈︎ <br/>
 
