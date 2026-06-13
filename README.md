@@ -7,6 +7,7 @@
   github is wip ._. <br/>
   im usually offtab on pt feel free to c+h <br/>
   dont copy, but you can ask for inspo <br/>
+  average valve enjoyer <br/>
 
   [tumblr art blog](https://tumblr.com/itsabirbitsaplane) ┊ [magma](https://magma.com/artist/itsabirbitsaplane/gallery)
 
