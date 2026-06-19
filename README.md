@@ -1,6 +1,6 @@
 <div align=center />
   
-  ![view counter broke?? whuh](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=orange&label=lambda_caches_located)<br/>
+  ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=orange&label=lambda_caches_located)<br/>
 
   ✈︎ <br/>
 
