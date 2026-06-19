@@ -4,12 +4,16 @@
 
   ✈︎ <br/>
 
+  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=its+a+birb!;its+a+plane!;no+wait+its+just+some+idiot&font=Bebas+Neue&center=true&color=ff8b26)](https://git.io/typing-svg) <br/>
+
+
   github is wip ._. <br/>
   im usually offtab on pt feel free to c+h <br/>
   dont copy, but you can ask for inspo <br/>
   average valve enjoyer <br/>
 
   [tumblr art blog](https://tumblr.com/itsabirbitsaplane) ┊ [magma](https://magma.com/artist/itsabirbitsaplane/gallery)
+
 
   i love my babygirl 😭⬇️ <br/>
   
