@@ -4,7 +4,7 @@
 
   ✈︎ <br/>
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=its+a+birb!;its+a+plane!;no+wait+its+just+some+idiot&font=Bebas+Neue&center=true&color=ff8b26)](https://git.io/typing-svg) <br/>
+  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=its+a+birb!;its+a+plane!;no+wait+its+just+some+idiot&font=Bebas+Neue&center=true&color=ff8b26&size=30)](https://git.io/typing-svg) <br/>
 
 
   github is wip ._. <br/>
