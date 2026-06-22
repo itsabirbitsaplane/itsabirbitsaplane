@@ -2,7 +2,7 @@
   
   ![](https://komarev.com/ghpvc/?username=itsabirbitsaplane&color=orange&label=lambda_caches_located)<br/>
 
-  ✈︎ <br/>
+   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/58b8363515d8273a5cab2f79.png?raw=true" width="50" height="26"> <br/>
 
   [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=its+a+birb!;its+a+plane!;no+wait+its+just+some+idiot&font=Bebas+Neue&center=true&color=ff8b26&size=30)](https://git.io/typing-svg) <br/>
 
