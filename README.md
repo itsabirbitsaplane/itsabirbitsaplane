@@ -14,10 +14,16 @@
 
   [tumblr art blog](https://tumblr.com/itsabirbitsaplane) ┊ [magma](https://magma.com/artist/itsabirbitsaplane/gallery)
 
-
   i love my babygirl 😭⬇️ <br/>
   
-  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/babygirl.gif?raw=true"> <img width="256" height="256" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/someone-datamined-a-certain-someones-model-from-half-life-v0-1xzC_DVKssZKexyfIaPFDMOzYYx7zV3BF7lMF0D-eHU.webp?raw=tru">
+  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/babygirl.gif?raw=true"> <img width="256" height="256" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/someone-datamined-a-certain-someones-model-from-half-life-v0-1xzC_DVKssZKexyfIaPFDMOzYYx7zV3BF7lMF0D-eHU.webp?raw=tru"> <br/>
+  
+   <br/>
+   <br/>
+   
+  also if you can tell me who all of these dudes here are i will give you a cookie ⬇️ <br/>
+
+  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/47%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/law%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/elster%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/connor%20stamp.png?raw=true">
   
 </p>
 
