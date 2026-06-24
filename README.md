@@ -21,7 +21,7 @@
    <br/>
    <br/>
    
-  also if you can tell me who all of these dudes here are i will give you a cookie ⬇️ <br/>
+  if you know who any of these dudes here are PLEASE INTERACT WITH ME ⬇️ <br/>
 
   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/47%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/law%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/elster%20stamp.png?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/connor%20stamp.png?raw=true">
   
