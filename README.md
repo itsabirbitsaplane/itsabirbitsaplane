@@ -18,5 +18,7 @@
   
   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/babygirl.gif?raw=true"> <img width="256" height="256" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/someone-datamined-a-certain-someones-model-from-half-life-v0-1xzC_DVKssZKexyfIaPFDMOzYYx7zV3BF7lMF0D-eHU.webp?raw=tru"> <br/>
 
+  <br/> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
+
 </p>
 
