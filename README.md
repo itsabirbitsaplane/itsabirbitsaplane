@@ -9,6 +9,7 @@
   ur average valve enjoyer <br/>
   idk how to make this pretty man <br/>
   im usually offtab on pt feel free to c+h, i dont bite 🥺<br/>
+  might not talk much when im using my gordon freeman skin... <br/>
   dont copy, but you can ask for inspo <br/>
 
   [tumblr art blog](https://tumblr.com/itsabirbitsaplane) ┊ [magma](https://magma.com/artist/itsabirbitsaplane/gallery)
