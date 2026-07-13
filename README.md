@@ -16,7 +16,7 @@
 
   i love my babygirl 😭⬇️ <br/>
   
-  <img width="256" height="336" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/hello%20hello.gif?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/IMG_20260713_185523.png?raw=true"> <br/>
+  <img width="217.5" height="280" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/hello%20hello.gif?raw=true"> <img width="252" height="367.5" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/IMG_20260713_185523.png?raw=true"> <br/>
   art by me :) <br/>
 
   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
