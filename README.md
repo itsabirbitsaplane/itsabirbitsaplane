@@ -16,9 +16,10 @@
 
   i love my babygirl 😭⬇️ <br/>
   
-  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/hello%20hello.gif?raw=true"> <img width="256" height="256" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/someone-datamined-a-certain-someones-model-from-half-life-v0-1xzC_DVKssZKexyfIaPFDMOzYYx7zV3BF7lMF0D-eHU.webp?raw=tru"> <br/>
+  <img width="256" height="336" src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/hello%20hello.gif?raw=true"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/IMG_20260713_185523.png?raw=true"> <br/>
+  art by me :) <br/>
 
-  <br/> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
+  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
 
 </p>
 
