@@ -15,6 +15,6 @@
 
   art by me :) <br/>
 
-  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
+  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/hi.gif?raw=true" width="64.918" height="90"> <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
 
 
