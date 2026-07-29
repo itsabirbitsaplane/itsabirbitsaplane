@@ -6,7 +6,7 @@
 
   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/58b8363515d8273a5cab2f79.png?raw=true" width="50" height="26"> <br/>
 
-  ur average valve enjoyer <br/>
+  ur average valve enjoyer (+ a bunch of other random indie games ig) <br/>
   idk how to make this pretty man <br/>
   im usually offtab on pt feel free to c+h, i dont bite 🥺<br/>
   dont copy, but you can ask for inspo <br/>
