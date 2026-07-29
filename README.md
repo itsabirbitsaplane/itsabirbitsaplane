@@ -16,4 +16,5 @@
   art by me :) <br/>
 
   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
-  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/blinkie%20pluh.gif?raw=true">
+
+  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20blinkie.gif?raw=true"> <br/>
