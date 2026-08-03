@@ -17,6 +17,4 @@
 
   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
 
-  <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20blinkie.gif?raw=true"> <br/>
-
   edit 31/7/26: 100 follower celebration yippee
