@@ -16,5 +16,3 @@
   art by me :) <br/>
 
   <img src="https://github.com/itsabirbitsaplane/itsabirbitsaplane/blob/main/gordon%20stamp.png?raw=true"> <br/>
-
-  edit 31/7/26: 100 follower celebration yippee
